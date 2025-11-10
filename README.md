@@ -1,1 +1,1 @@
-Diogo Paulo Website - https://diogo365.github.io/
+Diogo Paulo Website - https://diogojpaulo.github.io/
